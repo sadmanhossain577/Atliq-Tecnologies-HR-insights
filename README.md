@@ -1,1 +1,0 @@
-# Atliq-Tecnologies-HR-insights
